@@ -10,4 +10,3 @@ Door elkaars gedrag te begrijpen en hier samen mee om te leren gaan, kunnen we z
 
 ![](j.jpg)
 
-![](Wat doet muziek met jou.docx)
