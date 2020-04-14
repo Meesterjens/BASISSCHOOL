@@ -9,3 +9,5 @@ Als leraar vind ik het belangrijk om een band met de kinderen in de klas op te b
 Door elkaars gedrag te begrijpen en hier samen mee om te leren gaan, kunnen we zorgen voor een zo positief mogelijk leer- en leefklimaat in de klas. Waar liggen de kwaliteiten van de kinderen en waar willen de kinderen zelf ontwikkeling in doormaken? Door op zo veel mogelijk verschillende manieren de intrinsieke motivatie van de kinderen te triggeren zullen de resultaten verbeteren. Want als je iets leuk vindt, dat wil je hier toch in groeien?
 
 ![](j.jpg)
+
+![](Wat doet muziek met jou.docx)
