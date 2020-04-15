@@ -1,6 +1,6 @@
 ### Mijn social media
 [Hier](https://meesterjenss.weebly.com) vind je mijn (les)ideeën en uitgevoerde projecten met foto's. Doe er als leraar je voordeel mee!
-Als ouder of leerling is het denk ik vooral leuk om oud (samen) gemaakt werk terug te zien. 
+Als ouder of leerling is het denk ik vooral leuk om oud (samen) gemaakt werk terug te zien. Geniet er maar van, want deze site is speciaal voor jullie gemaakt.
 
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
 en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                                                                                                                                                                  
