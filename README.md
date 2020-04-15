@@ -1,4 +1,6 @@
 ### Mijn social media
+[hier](https://meesterjenss.weebly.com) vind je mijn lesideeën en uitgevoerde projecten met foto's, doe er als leraar je voordeel mee!
+
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
 en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                                                                                                                                                                  
 ![](ik.jpg) 
@@ -10,4 +12,4 @@ Door elkaars gedrag te begrijpen en hier samen mee om te leren gaan, kunnen we z
 
 ![](j.jpg)
 
-[Hier](file:///C:/Users/roets/Downloads/pdf%20test.pdf)
+
