@@ -8,4 +8,4 @@ Als ouder of leerling is het denk ik vooral leuk om oud (samen) gemaakt werk ter
 ### Mijn social media
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
 en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                                                                                                                                                                  
-![](w.png)
+![](jensie.png)
